@@ -1,2 +1,2 @@
-# AutoFarmLoadString-
-Lycoris Recoil saturdays lets goo
+# Lycoris Recoil saturdays lets goo
+
